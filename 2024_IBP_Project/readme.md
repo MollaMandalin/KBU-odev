@@ -1,1 +1,2 @@
-Yusuf Osman YILMAZ IBP Proje Ödevi
+IBP Proje Ödevi
+Yusuf Osman YILMAZ 
